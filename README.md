@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xolop4ik
+- 👀 I’m interested in dota 2
+- 🌱 I’m currently learning png programs xd
+- 💞️ I’m looking to collaborate on ?
+- 📫 How to reach me я беру в#2859
